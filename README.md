@@ -1,5 +1,5 @@
 Fear Itself
-==========
+===========
 
 * Fear Itself: A Game of Self-Presentation of History Where The Deterministic Prison-State of Fear-Narration is Transcended Through Dream Genesis and Historical Therapy ("*Historiotherapeusis*");
 
